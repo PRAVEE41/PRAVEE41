@@ -2,7 +2,7 @@
 - 👀 I’m interested in Electronics & Cyber security 
 - 🌱 I’m currently learning Electrical & electronics 
 - 💞️ I’m looking to collaborate on ... Learning new things 
-- 📫 How to reach me ... @praveen.16x insta
+- 📫 How to reach me ... 😄
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I am learning java to ,terminal & i love anime
 
